@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @mansoor-roeen-glitch
+- 👀 I’m interested in building amazing websites and web apps
+- 🌱 I’m currently learning everything tbh, but main focus is on node and express
+- 💞️ I’m looking to collaborate on ANYTHING!!!! 
+- 📫 I'm always availbale on instagram "drunkenpirate47x" 
